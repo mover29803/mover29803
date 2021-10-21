@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 - reach me here shawnhart17930@gmail.com or shawnhart@essentialworkerstoken.org
 - this is a must if my project is to succeed I can pay you in tokens before it is renounced 
-
+- I though by using a .crypto that it would show that I was serious about this project but mudra did not give option to
 <!---
 mover29803/mover29803 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
